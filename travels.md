@@ -1,0 +1,1 @@
+I love to travel around with my favorite band, see the world, eat good food, and make this boring life not so boring.
